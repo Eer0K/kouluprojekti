@@ -1,4 +1,4 @@
 Ryhmäprojektin readme
 
-
-Moi moi o mo mok omo 
+Tämän on Nicon oksa
+perukoira
